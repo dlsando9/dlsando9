@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dlsando9
+- 👋 Hi, I’m Daisy Sandoval
 - 📫 How to reach me dlsando9@gmail.com
 
 <!---
